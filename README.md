@@ -1,0 +1,1 @@
+# shurikenji.github.io
